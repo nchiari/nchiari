@@ -1,7 +1,7 @@
 # 👋 Hey, I'm Nico
 
-🎮 Creative technical lead for educational experiences  
-🧱 Minecraft Education world builder  
+🧩 Creative technical lead for educational experiences  
+🕹️ Minecraft Education game designer
 🛠 Builder of practical tools and workflows  
 
 ---
