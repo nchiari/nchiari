@@ -53,7 +53,7 @@ Long-term believer in learning through play.
 
 ## 🔎 Want to know more?
 
-🌐 https://nchiari.com  
+🌐 https://nicochiari.com  
 💼 https://www.linkedin.com/in/nicochiari/
 
 ---
